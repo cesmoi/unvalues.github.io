@@ -1,1 +1,2 @@
 # unvalues.github.io
+unvalues est un teste politique à la qualité douteuse qui trouve votre orientation politique grace à des axes et des question. Un teste inspirée par le teste américain 8values.(NE PAS PRENDRE LE TESTE TROP AU SERIEUX CE N'EST PAS LE TESTE LE PLUS PRECIS DU MONDE POUR QUELQUE CHOSE DE PLUS PRECIS JE VOUS CONSEILLE LE TESTE DOZENVALUES ET MEME SI VOUS AVEZ UN RESULTAT CE N'EST PAS UNE RAISON POUR EN BASÉ SA PERSONALITÉ!! )
